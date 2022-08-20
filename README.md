@@ -1,2 +1,0 @@
-# iqofficial.github.io
- 
